@@ -9,5 +9,5 @@ My name is Minyoung, and I have the cutest dog in the world.
   * My dog can *steal* cookies and things from my mouth, and I enjoy it.
   * My worst nightmare would be being stuck in a room full of statues, especially _Egyptian_ ones.
   
-![Me Being Way Too Excited to Give Drake a Bath](PIC.jpg){#id .class width=50% height=50%}
+![Me Being Way Too Excited to Give Drake a Bath](PIC.jpg){id .class width=50% height=50%}
 
