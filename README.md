@@ -20,4 +20,19 @@ I am from Seoul, South Korea. Before this program, I went to the University of M
 Honestly, how can you not be excited to give him a bath, look at him, he's so cute. I just want to go home asap so that I can cuddle him FOREVER.
   
 ![Me and My Son](PIC.jpg)
+![](bath.jpg)
 
+__... Some more pictures of us__
+
+![](cutie.jpg)
+
+__Another fun fact__ People tell me they can't tell if I am drunk or not because I am always hyper. #too_much_information
+
+![](drunk_me.jpg)
+
+
+Am I petting my dog, or is *he* petting me?!
+
+![](https://media.giphy.com/media/mOxCUSoRZ7vDq/giphy.gif)
+
+This is so fun, thank you prof. Soltoff!
