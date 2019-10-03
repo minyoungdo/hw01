@@ -20,9 +20,12 @@ I am from Seoul, South Korea. Before this program, I worked at a local non-profi
 Honestly, how can you not be excited to give him a bath, look at him, he's so cute. I just want to go home asap so that I can cuddle him FOREVER.
   
 ![Me and My Son](PIC.jpg)
+
 ![123](bath.jpg)
 
 __... Some more pictures of us__
+
+![Me and My Son](snow.jpg)
 
 ![12](cutie.jpg)
 
