@@ -2,7 +2,9 @@
 
 Hey, this is Minyoung, and I have the cutest dog in the world.
 
-# __*My name is Minyoung Do* Nice to meet you!__
+# *My name is __Minyoung Do__* 
+## Nice to meet you!
+
 
 I am from Seoul, South Korea. Before this program, I went to the University of Minnesota for 2 years and worked at a local non-profit for a year after graduating from college. I am so excited to learn more computational skills as well as meeting new people. 
 
